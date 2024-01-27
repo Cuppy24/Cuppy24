@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cuppy24
+- 👀 I’m interested in learning web and android development
+- 🌱 I’m currently learning java 
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I am the Secretary of the Student Council at STI Colleage Fairview 
